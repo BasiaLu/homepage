@@ -30,6 +30,6 @@ I constantly expand my technical toolkit to stay ahead of industry standards:
 
 ### 📬 Connect with me
 
-*   💼 LinkedIn: [Twój profil LinkedIn](https://linkedin.com)
-*   📧 Email: twój.email@example.com
+*   💼 LinkedIn: [Barbara Łukaszewska](https://linkedin.com/in/barbara-łukaszewska-897310395)
+*   📧 Email: barbara.lukaszewska17@gmail.com
 
